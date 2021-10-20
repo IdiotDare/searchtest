@@ -18,4 +18,8 @@ AYO BUDDY FRIEND I NEED A SEARCH BAR
 15. And since I'll pretty much be doing it on weekends, 1750 a day.
 16. Which is defintely too much.
 17. I'll stick to 1400 words a week, 200 a day, 700 a day on weekends.
-18. 
+18. Actually, let's jump that down to 1000.
+19. Yeah, 1000 is fine.
+20. If I can do more, then I will.
+21. Nah, actually, make it 1400.
+22. 
