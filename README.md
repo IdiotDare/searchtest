@@ -22,4 +22,8 @@ AYO BUDDY FRIEND I NEED A SEARCH BAR
 19. Yeah, 1000 is fine.
 20. If I can do more, then I will.
 21. Nah, actually, make it 1400.
-22. 
+22. Yup yup.
+23. Although actually, I still have to world build, so that's a pain for later days!
+24. Im adding that to my world count. Im literally coding, dude.
+25. Sigh, maybe I can have the info in like, markdown.
+26. And then I can learn the rest of responsive web design. 
